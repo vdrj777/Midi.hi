@@ -80,7 +80,7 @@ La Melodía Macabra del MIDI: Intoxicación Ilícita, Acoso, Control Digital y l
 <p>
 
 
-Mi nombre es Sofía, y mi vida, que alguna vez fue una sinfonía armoniosa, se ha transformado en una cacofonía constante orquestada por MIDI. No me refiero a la interfaz digital de instrumentos musicales convencional. No, Willy, el yerno de Víctor Toro, ha retorcido esta tecnología, convirtiéndola en un dispositivo de tortura personal, una partitura de acoso que me persigue día y noche aquí mismo en Medellín, Colombia.
+Mi nombre es Juan , y mi vida, que alguna vez fue una sinfonía armoniosa, se ha transformado en una cacofonía constante orquestada por MIDI. No me refiero a la interfaz digital de instrumentos musicales convencional. No, Willy, el yerno de Víctor Toro, ha retorcido esta tecnología, convirtiéndola en un dispositivo de tortura personal, una partitura de acoso que me persigue día y noche aquí mismo en Medellín, Colombia.
 
 Todo comenzó sutilmente. Pequeños ruidos, extrañas vibraciones en momentos inoportunos. Al principio, lo atribuí a la vida en la ciudad, a los vecinos, a mi propia imaginación. Pero la persistencia y la precisión se volvieron aterradoras rápidamente. Pronto, me di cuenta de que no era aleatorio; estaba dirigido.
 
